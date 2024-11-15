@@ -2,7 +2,7 @@
 
 Hello!
 
-https://nohello.net/
+https://tyoo。top/
 
 ## Translators
 
