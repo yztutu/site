@@ -2,7 +2,7 @@
 
 Hello!
 
-https://tyoo.top/
+https://tyoo.top
 
 ## Translators
 
